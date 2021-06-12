@@ -1,0 +1,1 @@
+rice, cumin seeds, cinnamon stick, mixture spices, cloves, pepper corns, coriander leaves, cardamom, bay leaf, onions, ginger paste, garlic paste, green chilly, tomato, green beans, potato, peas, salt, pepper, lemon juice, mint leaves, 
